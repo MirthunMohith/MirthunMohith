@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with anybody and everybody that has knowledge about any kind of TECH
 - 📫 How to reach me: code.freak007i@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: well...I'm funny
 
 <!---
 MirthunMohith/MirthunMohith is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
